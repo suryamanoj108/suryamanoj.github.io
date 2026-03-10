@@ -1,0 +1,1 @@
+Senior Software Engineer with over a decade of experience in data engineering, analytics, and BI solutions. I specialize in building scalable cloud-based data platforms and delivering actionable insights through advanced visualization tools. Recognized for driving innovation and leading high-performing teams across global projects.
